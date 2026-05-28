@@ -1,4 +1,4 @@
-# Main Account is [Rexzea](https://github.com/rexzea) (main porto in here)
+# Main Account is [Rexzea](https://github.com/rexzea) 
 
 
 Name: Muhammad Satria Obama
