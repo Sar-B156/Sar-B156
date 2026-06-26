@@ -1,4 +1,4 @@
-# Main Account is [Rexzea](https://github.com/rexzea) 
+# Main Account is [Rexzea](https://github.com/rexzea) (banned)
 
 
 Name: Muhammad Satria Obama
